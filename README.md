@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Jud-son-7
+- 👀 I’m interested in all things programming/computers.
+- 🌱 I’m currently learning CS50x
+- 💞️ I’m looking to collaborate on anything that a novice in programming can do
+- 📫 How to reach me: https://www.linkedin.com/in/tinodashe-dambudzo-a75a03226?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
+- 😄 Pronouns: He/him
+- ⚡ Fun fact: Im an April fools baby
